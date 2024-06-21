@@ -6,4 +6,4 @@ Meu nome é Arthur de Souza
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 ## Você pode entrar em contato comigo 📫
 desouza.arthur07@gmail.com   
-![](https://media.tenor.com/_deRvigGmHkAAAAj/banana-dance.gif)
+![](https://media.tenor.com/aCqq4I_Q3e8AAAAi/monke.gif)
